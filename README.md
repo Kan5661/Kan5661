@@ -6,4 +6,4 @@
 - 👯 I’m looking to collaborate
 - 📫 How to reach me: linkan0718@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: 
+- ⚡ Fun fact: Die
